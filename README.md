@@ -1,3 +1,3 @@
-AI-Native Systems Architect 
+AI-Native SYSTEMS ARCHITECT
 
 “Stability is architected; mastery is earned through consistency.”
